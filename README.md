@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DW206
-- 👀 I’m interested in ... Trading coin
+- 👀 I’m interested in marketing, making things.
 - 🌱 I’m currently learning ... Everything from scratch
 - 💞️ I’m looking to collaborate on ... Let's make the world a better place..? And a buck.
 - 📫 How to reach me ...
